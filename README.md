@@ -1,2 +1,6 @@
-# GemmieHolyman.github.io
-GemmieHolyman
+- [https://www.youtube.com/channel/UC0guRTme10cqFZ_0SgdYfxQ](https://www.youtube.com/channel/UC0guRTme10cqFZ_0SgdYfxQ)
+- [https://medium.com/@GemmieHolyman](https://medium.com/@GemmieHolyman)
+- [https://x.com/GemmieHolyman](https://x.com/GemmieHolyman)
+- [https://yo.fan/gemmieholyman](https://yo.fan/gemmieholyman)
+- [https://www.quora.com](https://www.quora.com/unanswered/What-measures-would-President-Harris-take-to-integrate-technology-in-classrooms-effectively/log)
+- [https://gemmieholyman.github.io/](https://gemmieholyman.github.io/)
